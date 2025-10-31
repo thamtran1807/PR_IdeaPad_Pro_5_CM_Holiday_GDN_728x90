@@ -1,0 +1,2 @@
+# PR_IdeaPad_Pro_5_CM_Holiday_GDN_728x90
+PR_IdeaPad_Pro_5_CM_Holiday_GDN_728x90
